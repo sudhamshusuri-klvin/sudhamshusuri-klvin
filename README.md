@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... klvin.aif stuff
 - 📫 How to reach me ... vu3myh@gmail.com sudhamshusuri.2015@gmail.com 
 - 😄 Pronouns: that/guy
-- ⚡ Fun fact: ... iladies is fun
+- ⚡ Fun fact: ...
 
 <!---
 sudhamshusuri-klvin/sudhamshusuri-klvin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
